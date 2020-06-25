@@ -1,2 +1,0 @@
-# amalnj
-website upload
